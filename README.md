@@ -3,8 +3,8 @@
 
 ##1
 
-*Lions in the street & roaming
-Dogs in heat, rabid, foaming
+*Lions in the street & roaming\
+Dogs in heat, rabid, foaming\
 A beast caged in the heart of a city*
 
 *The body of his mother
@@ -15,7 +15,7 @@ He fled the town.*
 And crossed the border
 Left the chaos & disorder
 Back there
-Over his shoulder.
+Over his shoulder.*
 
 *One morning he awoke in a green hotel
 W/a strange creature groaning beside him.
