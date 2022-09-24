@@ -1,15 +1,15 @@
-# The Celebration Of The Lizard
+#The Celebration Of The Lizard
 
 
 ##1
 
 *Lions in the street & roaming
 Dogs in heat, rabid, foaming
-A beast caged in the heart of a city
+A beast caged in the heart of a city*
 
 *The body of his mother
 Rotting in the summer ground.
-He fled the town.
+He fled the town.*
 
 *He went down South
 And crossed the border
